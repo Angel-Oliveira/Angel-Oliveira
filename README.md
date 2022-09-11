@@ -14,7 +14,7 @@ Sou também redatora SEO, copywriter, editora e gestora de conteúdos.
 
 #### Meu xodó é o **[Fala Mulher!](falamulher.com)**, site que criei para incentivar outras mulheres a crescerem cada dia mais.
 
-🤗 Pode me chamar para falar sobre SEO, redação técnica e comercial, nerdice, filhos e mais ^^
+🤗 Pode me chamar para falar sobre SEO, redação técnica e comercial, nerdice, filhos, axé e mais ^^
 
 🚀 Podemos nos falar também no [LinkedIn](https://www.linkedin.com/in/angela-oliveira-redatora/)
 
