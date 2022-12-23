@@ -5,6 +5,9 @@ Pode me chamar de **Angel** (ela, dela)👋🏽 Sou mega fã de Hamilton (o musi
 #### Como technical writer, já trabalhei em diversos materiais, principalmente como ghostwriter:
 
 - Artigos científicos na área odontológica e outras;
+- Governança da documentação;
+- Criação de guias para doc;
+- Revisão e adequação de documentações técnicas;
 - Tutoriais das mais diversas áreas;
 - Planos de negócios e de marketing para pequenas empresas;
 - Estudos de viabilidade técnico-econômicos e;
